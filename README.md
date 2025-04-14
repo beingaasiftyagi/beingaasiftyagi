@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **aasiftyagi725@gmail.com**
 
-- ⚡ Fun fact **I’m skilled at banning on Instagram**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
